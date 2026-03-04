@@ -1,0 +1,1 @@
+Notes for mankiw's principles of economy book. Most of these aren't actually notes, but answers to questions in the book. Some questions are made up. Things answered here do not represent newly learned concepts, as many of the questions I answered purely for repetition purposes, as well as just getting the dopamine out of checking a box.
